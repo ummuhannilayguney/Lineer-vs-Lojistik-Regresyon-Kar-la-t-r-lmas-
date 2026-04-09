@@ -1,0 +1,1 @@
+# Lineer-vs-Lojistik-Regresyon-Kar-la-t-r-lmas-
